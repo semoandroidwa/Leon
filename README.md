@@ -35,13 +35,13 @@ No personal support will be provided / We won't spoon feed you.
 If you need help
 you can contact - 
 ```
-[TOXIC DEVIL](https://wa.me/919747867484?text=I%20Have%20Seen%20Your%20Leon%20Ropo%20😍%20I%20Got%20Your%20Number%20From%20GitHub%20😉)
+[SEMO OFFC](https://wa.me/201124707113?text=I%20Have%20Seen%20Your%20Leon%20Ropo%20😍%20I%20Got%20Your%20Number%20From%20GitHub%20😉)
 
 ## 👨‍💻 Developers & Contributors 👨‍💻
 
  [![TOXIC-DEVIL](https://github.com/TOXIC-DEVIL.png?size=100)](https://github.com/TOXIC-DEVIL) |
 ----|
-[TOXIC-DEVIL](https://github.com/TOXIC-DEVIL)  | 
+[SEMO-OFFC](https://github.com/semoandroidwa)  | 
 Author: Developer, Base, Bug Fixes, Commits, Modules | 
 
 ## THANKS TO
